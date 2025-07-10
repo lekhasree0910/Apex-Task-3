@@ -79,8 +79,7 @@ Task-3/
 
 
 ## 📧 Connect with Me
-- 📬 Email: [your.email@example.com](mailto:your.email@example.com)  
-- 💼 LinkedIn: [Your LinkedIn Profile](#)
+- 📬 Email: lekhasree0910@gmail.com  
 
 ---
 
